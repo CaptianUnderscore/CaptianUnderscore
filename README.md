@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @CaptianUnderscore
+- 👀 If you want to reach me, friend me at my discord, CaptianUnderscore#0001
